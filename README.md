@@ -1,5 +1,5 @@
 <p align ="center"> <img width="20" height="20" src = "https://wilardo.crd.co/assets/images/gallery02/e4f0ac29_original.gif?v=e670c4e7"> "Boring... Isn't there anything else more interesting to do?" <img width="20" height="20" src = "https://wilardo.crd.co/assets/images/gallery02/e4f0ac29_original.gif?v=e670c4e7"> </p> 
 <p align = "center"> <img width="20" height="20" src = "https://gifs.crd.co/assets/images/gallery25/f9ac378d.gif?v=ef433a6f">  <i> Valentine/Valenty </i> <img width="20" height="20" src = "https://gifs.crd.co/assets/images/gallery25/f9ac378d.gif?v=ef433a6f"> </p>
 <p align = "center"> <img width="20" height="20" src = "https://gifs.crd.co/assets/images/gallery25/9444077d.gif?v=ef433a6f"> <b> They/them </b> <img width="20" height="20" src = "https://gifs.crd.co/assets/images/gallery25/9444077d.gif?v=ef433a6f"> </p>
-<p align = "center"> <img src = "https://cdn.discordapp.com/attachments/1019685817800728587/1235358724118413373/aaaaaaaaaaaaaa.jpg?ex=66360f37&is=6634bdb7&hm=b22ea9e35c5e9334a84bbd8f0c0c53b8076b379c9a61b70c8ed2dfaa50cac296&"> </p>
+<p align = "center"> <img src = "https://static1.srcdn.com/wordpress/wp-content/uploads/2023/11/genshin-impact-42-release-date-characters-banners-story-events-rewards.jpg"> </p>
 
