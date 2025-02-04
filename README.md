@@ -6,7 +6,8 @@
 <p align ="center"> ✦•┈๑⋅⋯ ⋯⋅๑┈•✦ </p>
 <p align = "center"> Minor // Taken 
   <p align ="center"> ✦•┈๑⋅⋯ ⋯⋅๑┈•✦ </p>
-<p align = "center"> If u want to get to know each other whisper me on ponytown ill give u my dsc...  </p>
+<p align = "center"> If my person made u feel curious and wish to have a chat with me privately do the action of whispering me to let me know.. (If u want to get to know each other whisper me on ponytown ill give u my dsc)  </p>
+<p align = "center"> If you're a mutual of mine feel free to make your presence clear and bless me with comfort of being close to one another. . . (if we're friends feel free to cuddle !!!) </p>
 
 <p align = "center"> <img width="900" height="400" src = "https://64.media.tumblr.com/062b74dedd467750dcfa4ef0172333e5/de4f665e3e24f096-a4/s2048x3072/6120bad96621b0a38118f0a09d496f7984227fc7.pnj"> </p>
 
