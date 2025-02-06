@@ -13,7 +13,7 @@
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎[Rentry](https://rentry.co/I-Deserve-To-Ble3d)⁺ 　 . ✦ . 　⁺  [Carrd](https://vampire-me.carrd.co)⁺ 　 . ✦ . 　⁺  [Pronouns](https://pronouns.cc/@V4lent1n3_) ⁺ 　 . ✦ . 　⁺ [Retrospring](https://retrospring.net/@V4mp) ⁺ 　 . ✦ . 　⁺ [Strawpage](https://v4l3nt1n3z.straw.page)
 
-  <p align = "center"> Graphic found on tumblr: @hsdjjgjehfnd </p>
+  <p align = "center"> Graphics found on tumblr: @hsdjjgjehfnd </p>
 <div id="header" align="center">
   <img src = "https://i.postimg.cc/bwx1WVvc/Untitled175-20230913202032.png" width="1000"> 
 </div>
