@@ -11,7 +11,7 @@
 
 <p align = "center"> <img width="900" height="400" src = "https://64.media.tumblr.com/062b74dedd467750dcfa4ef0172333e5/de4f665e3e24f096-a4/s2048x3072/6120bad96621b0a38118f0a09d496f7984227fc7.pnj"> </p>
 
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎[Rentry](https://rentry.co/I-Deserve-To-Ble3d)⁺ 　 . ✦ . 　⁺  [Carrd](https://vampire-me.carrd.co)⁺ 　 . ✦ . 　⁺  [Pronouns](https://pronouns.cc/@V4lent1n3_) ⁺ 　 . ✦ . 　⁺ [Retrospring](https://retrospring.net/@V4mp) ⁺ 　 . ✦ . 　⁺ [Strawpage](https://v4l3nt1n3z.straw.page)
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎‎ ‎ ‎‎[Rentry](https://rentry.co/I-Deserve-To-Ble3d)⁺ 　 . ✦ . 　⁺  [Carrd](https://vampire-me.carrd.co)⁺ 　 . ✦ . 　⁺  [Pronouns](https://pronouns.cc/@V4lent1n3_) ⁺ 　 . ✦ . 　⁺ [Retrospring](https://retrospring.net/@V4mp) ⁺ 　 . ✦ . 　⁺ [Strawpage](https://v4l3nt1n3z.straw.page)⁺ 　 . ✦ . 　⁺[Spacehey](https://spacehey.com/sc4ryv4mp1r3)
 
   <p align = "center"> Graphics found on tumblr: @hsdjjgjehfnd </p>
 <div id="header" align="center">
