@@ -14,6 +14,8 @@
 </div>
 <p align = "center"> I LOVE IT I LOVE IT I LOVE IT I LOVE IT SMSMMSM THANK YOU SO MUCH OOMF OH MY GODDDDDDD </p>
 
+<p align ="center"> Everyone commision my vro. rentry.co/reptilespectrum i promise its rlly sigmastic and very kewl and nice to talk to vro..please...i beg...looks up with my cutesy eyes</p>
+
 <div>
 <img src ="https://64.media.tumblr.com/544b4cdfafccfafc480aed94b23eb635/2bdf54e703a92672-6a/s2048x3072/af7200458a5127c88bea4fbc95a8f2c7a6eb360b.pnj" >
 </div>
